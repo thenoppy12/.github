@@ -2,5 +2,5 @@
 # **NoppyUniverse! (aka NoppyFamily)** 
 ### (Owner: [**``BussyBakks``**](<https://github.com/BussyBakks>))
 
-* Discord: **``26.11.100.137``**
+* Discord: **``thenoppy12.d``**
 * Xbox: **``thenoppy12``** or **``thenoopy12``**
